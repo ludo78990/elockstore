@@ -32,3 +32,6 @@ Independent 2026 comparison guides to pick the right professional tablet hardwar
 - [Vehicle tablet mounts for professionals](https://www.elockstore.com/content/172-meilleur-support-tablette-voiture-2026-comparatif)
 - [VESA tablet mounts overview](https://www.elockstore.com/content/173-meilleur-support-vesa-tablette-2026-comparatif)
 - [Restaurant ordering kiosks 2026](https://www.elockstore.com/content/174-borne-commande-restaurant-2026-comparatif)
+- [Tablet mounts compared](https://www.elockstore.com/content/175-meilleur-support-tablette-2026-comparatif)
+- [Phone mounts for fleets & pros](https://www.elockstore.com/content/176-meilleur-support-telephone-2026-comparatif)
+- [Phone tripods for filming](https://www.elockstore.com/content/177-meilleur-trepied-telephone-2026-comparatif)
